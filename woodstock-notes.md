@@ -35,3 +35,7 @@ B&Q sell boards, and cut them, first 5 cuts are free.
 We’re still toying with the idea of carpeting the loft room, which would cost around £600 (including going into the storage spaces).
 
 We got samples from Naked Flooring and liked [which?] the most.
+
+## Heating
+
+Connie recommended [these radiator values](https://www.castrads.com/valves/windsor-antique-copper-trv/). They’re not cheap, but they have 5 year guarantee.
